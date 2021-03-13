@@ -1,1 +1,1 @@
-# Information-about-Minecraft
+# Information-about-games
